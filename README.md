@@ -1,9 +1,9 @@
 # Whatsapp-OTP-Bypass
-This Tool Can Be Help :- https://verifyotp.p0p1.tk/
+This Tool Can Be Help :- https://verifyotp.p0p1.tk
 
 Looking for a way to activate WhatsApp without using your phone number? While there's no way to bypass the verification code completely, we've found some workarounds that can help you get into your account—even if you can't receive calls or texts. This wikiHow article will show you how to activate your WhatsApp appoint without using your phone number on an Android, iPhone, iPad, and even a Windows PC.<hr>
 
-This Tool Can Be Help :- https://verifyotp.p0p1.tk/
+Go To Here :- https://verifyotp.p0p1.tk
 <br><br>
 ![image](https://user-images.githubusercontent.com/123932312/217312518-a07a6eaf-f1a3-4f8a-b1a0-4b308e00be19.png)
 <br>
